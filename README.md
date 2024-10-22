@@ -28,6 +28,9 @@ Quất hồng bì có tính lạnh, vị chua có tác dụng giải khát, ch�
 Theo Đông y, tang bạch bì vị ngọt, tính hàn; vào kinh phế. Tác dụng tả phế bình suyễn, lợi tiểu, tiêu phù. Liều dùng: 4g đến 25g.
 
 THÔNG TIN ĐỊA CHỈ MUA HÀNG
+
 CÔNG TY CÔNG VIÊN CÂY XANH HANOI
+
 ĐỊA CHỈ: KĐT Hoà Lạc, Quốc Oai, Hà Nội
+
 ĐIỆN THOẠI: 0987789789
